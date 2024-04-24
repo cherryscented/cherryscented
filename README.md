@@ -1,4 +1,9 @@
-### twerk
+## i do not know how to make this shit look good 🙉 
+#### c + h are almost always welcome unless you're a freak (in a bad way aka fits in dni)
+#### i dont hide people (at least often) so if im sitting on someone thats there fault
+#### normally afk if i dont respond dont be scared to whisper and ill respond when i see it
+#### if you wanna hit my line my disc is lesbianvampyr
+(i can give insta instead if needed but im not active there & and if your playing a online ponygame im gonna assume ur a discord user) 
 
 <!--
 **cherryscented/cherryscented** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
