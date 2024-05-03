@@ -1,11 +1,13 @@
-## i do not know how to make this shit look good 🙉 
-#### c + h are almost always welcome unless you're a weirdo (aka fits in dni)
+## some ponytown shiz 🙉 
+#### im normally afk if i dont respond dont be scared to whisper and ill respond when i see it
+#### c + h are almost always welcome unless im with somebody 
 #### i dont hide people (at least often) so if im sitting on someone thats there fault
-#### normally afk if i dont respond dont be scared to whisper and ill respond when i see it
-#### if you wanna hit my line my disc is lesbianvampyers
+#### i dont care if you take inspo from anything i make, just dont out right copy have a little creativity 
+#### my disc is lesbianvampyers i promise im really cool and not a freak 
 (i can give insta instead if needed but im not active there & and if your playing a online ponygame im gonna assume ur a discord user) 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/cherryscented/cherryscented/assets/164149389/3e6c4314-0ae3-4c09-83a8-b8715a3dcc5f)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Screenshot_2024-05-02_192108-removebg-preview](https://github.com/cherryscented/cherryscented/assets/164149389/ffe7af45-6027-465e-b0cd-d21f2919c74d)
+
 
 <!--
 **cherryscented/cherryscented** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
