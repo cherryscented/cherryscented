@@ -1,12 +1,12 @@
 ## some ponytown shiz 🙉 
 #### im normally afk if i dont respond dont be scared to whisper and ill respond when i see it
-#### c + h are almost always welcome unless im with somebody 
+#### c + h are almost always welcome unless im with somebody (im so full of love and whimsy but also a pussy)
 #### i dont hide people (at least often) so if im sitting on someone thats there fault
-#### i dont care if you take inspo from anything i make, just dont out right copy have a little creativity 
+#### dont care if you take inspo from anything i make, just dont out right copy have a little creativity 
 #### my disc is lesbianvampyers i promise im really cool and not a freak 
-(i can give insta instead if needed but im not active there & and if your playing a online ponygame im gonna assume ur a discord user) 
+(i can give my insta instead but im not active and we're playing a online ponygame you have discord)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Screenshot_2024-05-02_192108-removebg-preview](https://github.com/cherryscented/cherryscented/assets/164149389/ffe7af45-6027-465e-b0cd-d21f2919c74d)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Screenshot_2024-05-02_192108-removebg-preview](https://github.com/cherryscented/cherryscented/assets/164149389/ffe7af45-6027-465e-b0cd-d21f2919c74d)
 
 
 <!--
