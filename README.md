@@ -6,7 +6,7 @@
 #### my disc is lesbianvampyers i promise im really cool and not a freak 
 (i can give insta instead if needed but im not active there & and if your playing a online ponygame im gonna assume ur a discord user) 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Screenshot_2024-05-02_192108-removebg-preview](https://github.com/cherryscented/cherryscented/assets/164149389/ffe7af45-6027-465e-b0cd-d21f2919c74d)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Screenshot_2024-05-02_192108-removebg-preview](https://github.com/cherryscented/cherryscented/assets/164149389/ffe7af45-6027-465e-b0cd-d21f2919c74d)
 
 
 <!--
