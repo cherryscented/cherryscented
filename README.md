@@ -4,7 +4,7 @@
 #### i dont hide people (at least often) so if im sitting on someone thats there fault
 #### dont care if you take inspo from anything i make, just dont out right copy have a little creativity 
 #### my disc is lesbianvampyers i promise im really cool and not a freak 
-(i can give my insta instead but im not active and we're playing a online ponygame you have discord)
+(i can also give my twt now if needed!)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Screenshot_2024-05-02_192108-removebg-preview](https://github.com/cherryscented/cherryscented/assets/164149389/ffe7af45-6027-465e-b0cd-d21f2919c74d)
 
