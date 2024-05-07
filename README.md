@@ -7,8 +7,8 @@
 (i can also give my twt now if needed!)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/cherryscented/cherryscented/assets/164149389/b2867814-c111-4357-9be7-9c44286cc942)
-
-
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀↑
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀she is me i am her (not seriously)
 
 <!--
 **cherryscented/cherryscented** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
