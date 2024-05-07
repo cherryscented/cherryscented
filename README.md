@@ -3,8 +3,7 @@
 #### c + h are almost always welcome unless im with somebody (im so full of love and whimsy but also a pussy)
 #### i dont hide people (at least often) so if im sitting on someone thats there fault
 #### dont care if you take inspo from anything i make, just dont out right copy have a little creativity 
-#### my disc is lesbianvampyers i promise im really cool and not a freak 
-(i can also give my twt now if needed!)
+#### my disc is lesbianvampyers i promise im really cool and not a freak (i can also give my twt now if needed!)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/cherryscented/cherryscented/assets/164149389/b2867814-c111-4357-9be7-9c44286cc942)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀↑
