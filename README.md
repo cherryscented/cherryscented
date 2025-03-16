@@ -5,7 +5,7 @@
 #### dont care if you take inspo from anything i make, just dont out right copy have a little creativity 
 #### my disc is yrcritiqe i swear im really cool 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://files.catbox.moe/j6jnb5.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://files.catbox.moe/epu811.png)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀she is me i am her (not seriously)
 
 <!--
