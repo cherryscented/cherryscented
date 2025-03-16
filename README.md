@@ -6,7 +6,7 @@
 #### my disc is yrcritiqe i swear im really cool 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://files.catbox.moe/epu811.png)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀she is me i am her (not seriously)
+
 
 <!--
 **cherryscented/cherryscented** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
