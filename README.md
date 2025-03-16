@@ -5,7 +5,7 @@
 #### dont care if you take inspo from anything i make, just dont out right copy have a little creativity 
 #### my disc is yrcritiqe i swear im really cool 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://github.com/cherryscented/cherryscented/assets/164149389/b2867814-c111-4357-9be7-9c44286cc942)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![image](https://files.catbox.moe/j6jnb5.png)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀she is me i am her (not seriously)
 
 <!--
