@@ -1,4 +1,4 @@
-## i cant stop redoing this 🙉 
+## yabba yabba 🙉 
 #### im normally afk if i dont respond dont be scared to whisper and ill respond when i see it 
 #### c + h are almost always welcome unless im with somebody (im so full of love and whimsy but also a pussy)
 #### i dont hide people (at least often) so if im sitting on someone thats there fault
